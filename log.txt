@@ -1,2 +1,5 @@
 Drank Water At  |2022-09-14 14:28:13.149035
 Eyes Exercise Done At  |2022-09-14 14:28:16.720786
+Drank Water At  |2022-09-14 15:08:24.818589
+Eyes Exercise Done At  |2022-09-14 15:08:58.601354
+Physical Activity Done At  |2022-09-14 15:11:18.386040
