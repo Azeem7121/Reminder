@@ -1,0 +1,7 @@
+Reminder
+Caution: As you sit and continuously stair your computer screen "IT DOES IMPACT OUR HEALTH"
+     So here is the solution for, You will be remind :
+     1-Every 40min for drinking water to complete daily water limits of human ie; (3.5 liter of water)
+     2-Every 40min for Eyes exercise to relax your eyes at least for 1 minute
+     3-Every 90min for Physical activity to relife body stress at least for 5 minute
+     BE HEALTHY! LIVE YOUNG AND ACTIVE
